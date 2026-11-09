@@ -1,1 +1,3 @@
-i have Congenital Adrenal Hyperplasia and schizophrenia, these two things drastically effect my mood and the way my body produces stress. i am quick to get angry and "blow up" on people, be patient with me
+iwec always . im on antipsychotics and tricyclic antidepressants which can make me act very lazy / floppy
+
+despite this i am a very energetic person and i can be very bubbly 
