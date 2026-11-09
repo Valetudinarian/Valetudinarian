@@ -1,3 +1,3 @@
-iwec always . im on antipsychotics and tricyclic antidepressants which can make me act very lazy / floppy
+i have bipolar type 2 and autism / schizophrenia ++ unlisted
 
-despite this i am a very energetic person and i can be very bubbly 
+so please be extremely careful with how you speak to me
