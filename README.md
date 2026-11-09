@@ -1,2 +1,1 @@
-
-:P
+i have Congenital Adrenal Hyperplasia and schizophrenia, these two things drastically effect my mood and the way my body produces stress. i am quick to get angry and "blow up" on people, be patient with me
