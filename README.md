@@ -1,3 +1,5 @@
 iweeec 24/7 
 
-please talk to me i only play this stupid ass game i grew out of when i was 13 for social interaction lol
+im like if an angel wasnt let into heaven
+
+not fallen or anything i was just too cool to be anywhere near mormons
